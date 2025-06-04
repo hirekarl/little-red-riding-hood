@@ -1,0 +1,1 @@
+One day, Little Red Riding hood left her home with a basket of pastries to deliver to her grandmother in the woods.
